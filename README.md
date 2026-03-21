@@ -1,4 +1,4 @@
-# Wellby
+# Wellby 🌿
 
 Work well. Rest well. Be well.
 
